@@ -1,1 +1,1 @@
-<a href="https://mayijun1203.github.io/PHOTOMAPPERGH/light.html#13.9/29.09978/119.66614" target="_blank"> Demo Link </a>
+<a href="https://mayijun1203.github.io/HKIPGH/light.html#17/22.282436/114.14572" target="_blank"> Demo Link </a>
